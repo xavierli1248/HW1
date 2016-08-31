@@ -1,2 +1,0 @@
-Xin Li
-Chicago Cubs
